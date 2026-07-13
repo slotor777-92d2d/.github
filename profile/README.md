@@ -1,18 +1,18 @@
 <a href="https://win-money.click/?brand=Slotor777&source=github.com" target="_blank">
-<img width="295" src="https://img.shields.io/badge/%D0%9E%D1%84%D0%B8%D1%86%D0%B8%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D0%B0%D0%B9%D1%82%20Slotor777-2E8B57?style=plastic" />
+<img width="495" src="https://img.shields.io/badge/%D0%9E%D1%84%D0%B8%D1%86%D0%B8%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D0%B0%D0%B9%D1%82%20Slotor777-8A2BE2?style=for-the-badge" />
 </a>
 <br />
 <br />
 <a href="https://win-money.click/?brand=Slotor777&source=github.com" target="_blank">
-<img width="167" src="https://img.shields.io/badge/%D0%92%D1%85%D0%BE%D0%B4%20Slotor777-2E8B57?style=plastic" />
+<img width="280" src="https://img.shields.io/badge/%D0%92%D1%85%D0%BE%D0%B4%20Slotor777-8A2BE2?style=for-the-badge" />
 </a>
 <br />
 <br />
 <a href="https://win-money.click/?brand=Slotor777&source=github.com" target="_blank">
-<img width="199" src="https://img.shields.io/badge/%D0%97%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20Slotor777-2E8B57?style=plastic" />
+<img width="334" src="https://img.shields.io/badge/%D0%97%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20Slotor777-8A2BE2?style=for-the-badge" />
 </a>
 
-![Slotor777](33-6138.png)
+![Slotor777](33-12376.png)
 
 <h2>Начните ваше путешествие в Slotor777Casino: Полное пособие</h2>
 <p>Открываем двери в мир азартных развлечений Slotor777Casino, где инновации встречаются с классикой, предлагая игрокам уникальный опыт с акцентом на честность и безопасность игрового процесса. 🎰</p>
@@ -157,4 +157,3 @@ FAQ: Ответы на ваши вопросы по Слотор777 азартн
 </ul>
 
 [Open website](https://win-money.click/?brand=Slotor777&source=github.com)
-
